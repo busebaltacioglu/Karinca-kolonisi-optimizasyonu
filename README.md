@@ -1,0 +1,2 @@
+# Karinca-kolonisi-optimizasyonu
+ 
